@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome.
 #### 10
-#### 11 Kao smiles a lot
+#### 11 Kao has been running into me in my head
 #### 12
 #### 13
 #### 14
